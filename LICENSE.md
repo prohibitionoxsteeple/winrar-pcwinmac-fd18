@@ -1,4 +1,4 @@
-# 
+# Ultime WinRAR préréglages pour Mac OS | Natif WinRAR préréglages pour PC Windows. Avec nettoyage de l'historique et système de notifications — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
